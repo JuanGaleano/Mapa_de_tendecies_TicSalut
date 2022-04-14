@@ -1,0 +1,1 @@
+# Mapa_de_tendecies_TicSalut
